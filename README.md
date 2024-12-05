@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently working on leveling up my skills and going full stack.<br>I’m looking to collaborate on anything interesting and fu.<br>I love books, climbing, ethics and art.
+👷‍♀️ I’m currently working on leveling up 🚀 my skills and going full stack.<br>👥 I’m looking to collaborate on anything interesting and fu.<br> 📚I love books, 🧗climbing, 🟰ethics and 🖼️art.
 
 
 ## 🌐 Socials:
